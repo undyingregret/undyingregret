@@ -13,3 +13,10 @@
   
 [read rentry for about me](https://rentry.co/humannature)
 </div>
+
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3134byd6bvxkl2gmqbnguwcbux6q&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
+  </a>
+</p>
