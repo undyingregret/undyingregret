@@ -11,7 +11,10 @@
 
 <div align="center">
   
-[read rentry for about me](https://rentry.co/humannature)
+[rentry](https://rentry.co/humannature)
+[dni/byi](https://rentry.co/seenoevilspeaknoevilhearnoevil)
+[matching](https://rentry.co/babybrush)
+[atabook](https://undyingregret.atabook.org/)
 </div>
 
 
