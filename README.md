@@ -20,6 +20,7 @@
 </div>
 
 <p align="center"><img width="100" height="58" alt="image" src="https://github.com/user-attachments/assets/6eeb5f0c-0e53-4414-8b96-f392c3b90d5f" />
+<p align="center">ˢᵗᵃᵐᵖ ᵇʸ ᵐᵉ
 
 
 <p align="center">
