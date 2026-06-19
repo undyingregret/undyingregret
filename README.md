@@ -28,3 +28,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3134byd6bvxkl2gmqbnguwcbux6q&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
   </a>
 </p>
+
+
+[callout on @omegamaie…](https://rentry.co/cassiecallout)
