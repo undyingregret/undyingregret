@@ -13,9 +13,9 @@
 
 <div align="center">
   
-[rentry](https://rentry.co/humannature) ᭡
-[dni/byi](https://rentry.co/seenoevilspeaknoevilhearnoevil) ᭡
-[matching](https://rentry.co/babybrush) ᭡
+[rentry](https://rentry.co/humannature) 𓈒
+[dni/byi](https://rentry.co/seenoevilspeaknoevilhearnoevil) 𓈒
+[matching](https://rentry.co/babybrush) 𓈒
 [atabook](https://undyingregret.atabook.org/)
 </div>
 
