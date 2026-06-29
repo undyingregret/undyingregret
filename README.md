@@ -1,4 +1,4 @@
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=26&pause=1000&color=8147AD&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=4F74CD&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
 <p align="center">$\color{#4F74CD}{\textsf{Never again shall i wonder}}$
 </p>
