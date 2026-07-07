@@ -9,7 +9,7 @@
 <p align="center">$\color{#377A70}{\textsf{For you, Dear Spawn.}}$
 </p>
 
-<p align="center"><img width="144" height="155" alt="image" src="https://github.com/user-attachments/assets/19bf91ac-a559-4e37-8bea-d95dded9fdbb" />
+<p align="center"><img width="144" height="160" alt="image" src="https://github.com/user-attachments/assets/19bf91ac-a559-4e37-8bea-d95dded9fdbb" />
 
 <div align="center">
   
