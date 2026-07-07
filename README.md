@@ -1,12 +1,12 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=4F74CD&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
-<p align="center">$\color{#4F74CD}{\textsf{Never again shall i wonder}}$
+<p align="center">$\color{#377A70}{\textsf{Never again shall i wonder}}$
 </p>
-<p align="center">$\color{#4F74CD}{\textsf{Never again shall i hurt}}$
+<p align="center">$\color{#377A70}{\textsf{Never again shall i hurt}}$
 </p>
-<p align="center">$\color{#4F74CD}{\textsf{Never again shall i love}}$
+<p align="center">$\color{#377A70}{\textsf{Never again shall i love}}$
 </p>
-<p align="center">$\color{#4F74CD}{\textsf{For you, Dear Spawn.}}$
+<p align="center">$\color{#377A70}{\textsf{For you, Dear Spawn.}}$
 </p>
 
 <p align="center"><img width="144" height="155" alt="image" src="https://github.com/user-attachments/assets/19bf91ac-a559-4e37-8bea-d95dded9fdbb" />
