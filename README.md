@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan <3}}$ [@fan-town](https://github.com/fan-town)
+$\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fan-town](https://github.com/fan-town)
 
 $\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
 
