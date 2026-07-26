@@ -2,6 +2,8 @@
 
 $\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan <3}}$ [@fan-town](https://github.com/fan-town)
 
+$\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
+
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=24&pause=1000&color=B6BEC9&center=true&vCenter=true&width=435&lines=Oh+Mr.+Wolf%2C+you+want+me+to+stay;But+I+fear+we%E2%80%99ll+regret+it+one+day" alt="Typing SVG" /></a>
 
 <p align="center">$\color{#B6BEC9}{\textsf{Never again shall i wonder}}$
