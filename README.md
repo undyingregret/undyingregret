@@ -16,7 +16,7 @@ $\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
 <p align="center">$\color{#B6BEC9}{\textsf{For you, Dear Spawn.}}$
 </p>
 
-<p align="center"><img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/356a115b-c313-4acb-a8ac-10a66c9963f8" />
+<p align="center"><img width="220" alt="image" src="https://github.com/user-attachments/assets/356a115b-c313-4acb-a8ac-10a66c9963f8" />
 
 <div align="center">
   
