@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town)
+$\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
 $\color{#B6BEC9}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers)
 
 $\color{#B6BEC9}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$
