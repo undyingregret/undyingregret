@@ -28,7 +28,7 @@ $\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
 [atabook](https://undyingregret.atabook.org/)
 </div>
 
-<p align="center"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/f500a896-5bd0-481e-965a-22e4e5cb85c6" />
+<p align="center"><img width="101" alt="image" src="https://github.com/user-attachments/assets/f500a896-5bd0-481e-965a-22e4e5cb85c6" />
 <img width="101" alt="image" src="https://github.com/user-attachments/assets/1bd22a42-71d8-445b-ab4d-ca98387c1b04" />
 <img width="101" alt="image" src="https://github.com/user-attachments/assets/59b956ed-fa11-4919-a0b4-5f158b34d08f" />
 <img width="101" alt="image" src="https://github.com/user-attachments/assets/efd2c1c5-8f51-4807-9dcc-34c2e9ed348a" />
