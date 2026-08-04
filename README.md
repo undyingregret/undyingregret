@@ -4,7 +4,8 @@ $\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of
 $\color{#B6BEC9}{\textsf{official two time of ponytown for well over a year !!}}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@pt-contributers](https://github.com/pt-contributers) [@pt-fashion](https://github.com/pt-fashion)
 
 $\color{#B6BEC9}{\textsf{pony town’s azuretime CEO !!!! biggest shipper oat >ᴗ< }}$
-not an azure yume i just like him a lot
+
+$\color{#B6BEC9}{\textsf{not an azure yume i just like him a lot}}$
 
 $\color{#B6BEC9}{\textsf{his timey ♡ 09.04.25}}$
 
