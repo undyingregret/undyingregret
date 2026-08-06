@@ -4,8 +4,6 @@ hey and also you are just fucking weird and blatantly transphobic if you can rea
 
 <img width="304" height="487" alt="image" src="https://github.com/user-attachments/assets/df89967f-af28-4d1e-9ed3-ba2d734d2dca" />
 
-
-
 <div align="center">
 
 $\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
