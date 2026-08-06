@@ -1,7 +1,3 @@
-read doc on [@timstalkerdrake & @sebvsene](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1) !
-
-[my perspective on the situation](https://docs.google.com/document/d/13LgHyTmwWy5AgGwHt4asao-tnAcoYxvBMSCf4_NgCCU/edit?usp=sharing)
-
 <div align="center">
 
 $\color{#B6BEC9}{\textsf{Azurewrath's one and only number one fan since April of 2025 <3}}$ [@fans-town](https://github.com/fans-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
