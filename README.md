@@ -1,4 +1,4 @@
-read doc on [@timstalkerdrake & @sebvsene] !(https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1)
+read doc on [@timstalkerdrake & @sebvsene](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1) !
 
 
 <div align="center">
