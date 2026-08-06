@@ -1,6 +1,6 @@
 read doc on [@timstalkerdrake & @sebvsene](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1) !
 
-hey and also you are just fucking weird and blatantly transphobic if you can read that whole doc and STILL misgender me MULTIPLE times without fail. its not that hard and if you cant make the bare minimum “effort” of GLANCING at my profile to see my pronouns dont make a fucking doc on me 😭 if you wanted to “leave this behind” you wouldnt have made the hate-filled doc. you started this, we didnt.
+hey and also you are just fucking weird and blatantly transphobic if you can read that whole doc and STILL misgender me MULTIPLE times without fail. its not that hard and if you cant make the bare minimum “effort” of GLANCING at my profile to see my pronouns dont make a fucking doc on me and my friends 😭 if you wanted to “leave this behind” you wouldnt have made the hate-filled doc. you started this, we didnt.
 
 
 <div align="center">
