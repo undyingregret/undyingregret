@@ -1,6 +1,6 @@
 read doc on [@timstalkerdrake & @sebvsene](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1) !
 
-hey and also you are just fucking weird and blatantly transphobic if you can read that whole doc and STILL misgender me MULTIPLE times without fail. its not that hard and if you cant make the bare minimum “effort” of GLANCING at my profile to see my pronouns dont make a fucking doc on me and my friends 😭 if you wanted to “move on” you wouldnt have made the original doc where u guys were literally cussing us out even after it was already resolved in the server AND dms. u guys crossed ur own boundaries by making the doc. you started this, we didnt. it becomes more than an “online arguement” when its getting to the point of ur friends jus talking shit abt us in pub chat … ? be real :/
+making my own doc bc 🫩
 
 <img width="304" height="487" alt="image" src="https://github.com/user-attachments/assets/df89967f-af28-4d1e-9ed3-ba2d734d2dca" />
 
